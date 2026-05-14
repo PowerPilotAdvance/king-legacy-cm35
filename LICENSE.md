@@ -1,4 +1,4 @@
-
+Download Free king legacy Script top for king legacy and experience the ultimate in gameplay enhancement with god mode and custom skins. Designed for gamers who demand the best,
 
 
 
